@@ -1,1 +1,0 @@
-# Hearth-Drawing-Synx1200
